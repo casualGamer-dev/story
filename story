@@ -1,2 +1,3 @@
 Pip was going to by the church to his sisters house when a he heard a loud sound from the grave yard.
-He wen towards the graveyard and saw 2 huge black figures diggin next to a grave.
+He wen towards the graveyard and saw 2 huge black figures diggin next to a grave.He went near the and looked at what they were doing.Both of them had chains on their legs. pip was about to run when
+one of the man heard him and grabbed him by his throat.The man said"Who are you.Why you here,and where do you live".
